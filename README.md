@@ -1,2 +1,2 @@
 # panitarn.github.io
-My lttle linktree :-)
+My little linktree :-)
